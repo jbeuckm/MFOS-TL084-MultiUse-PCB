@@ -1,1 +1,1 @@
-http://www.musicfromouterspace.com/index.php?MAINTAB=SYNTHDIY&PROJARG=OLDIESBUTGOODIES/VCA/dualvca-2.html&VPW=1805&VPH=878
+www.musicfromouterspace.com/analogsynth_new/OLDIESBUTGOODIES/VOLTAGEMIXER/voltagedist1.html
